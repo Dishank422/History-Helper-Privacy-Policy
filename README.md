@@ -1,0 +1,1 @@
+# History-Helper-Privacy-Policy
